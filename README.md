@@ -8,5 +8,5 @@ This is my repository, and this is what I can say about me,  I´m a determined g
 - 👯 I’m looking to collaborate on projects;
 - 🤔 I’m looking for help with getting a job on programming;
 - 💬 Ask me about things you wanna know and I help you
-- 📫 How to reach me: adilsonzumba@hotmail.com or 📱+244 995 644 145
+- 📫 How to reach me: adilsonzumba@hotmail.com or 📱+244 929 214 112
 
